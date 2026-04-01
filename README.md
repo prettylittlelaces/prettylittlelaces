@@ -21,3 +21,7 @@
 <div align="center">
 
 𝐖𝐡𝐞𝐧 𝐲𝐨𝐮 𝐰𝐞𝐫𝐞 𝐠𝐢𝐯𝐢𝐧𝐠 𝐡𝐞𝐚𝐝?
+
+<div align="center">
+
+<img width="480" height="321" alt="4866ea334037d0c352a793c2e2869142-removebg-preview" src="https://github.com/user-attachments/assets/a4bc3b02-cf10-481d-bc3b-ab7c9464e848" />
