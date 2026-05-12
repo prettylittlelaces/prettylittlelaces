@@ -8,7 +8,7 @@
 
 <div align="center">
 
-[strawpage](https://prettylittlelaces.straw.page) ˖ . ݁𝜗𝜚. ݁₊ [atabook](https://prettylittlelaces.atabook.org/) ˖ . ݁𝜗𝜚. ݁₊ [rentry](https://rentry.co/prettylittlelaces)
+[strawpage](https://prettylittlelaces.straw.page) ˖ . ݁𝜗𝜚. ݁₊ [atabook](https://heavenisabedroom.atabook.org/) ˖ . ݁𝜗𝜚. ݁₊ [rentry](https://rentry.co/prettylittlelaces)
 
 <img width="734" height="295" alt="21d1c2f83eb5d6aa82626abbbc83bba9-removebg-preview" src="https://github.com/user-attachments/assets/c1c1f983-b642-4c2e-aa5d-05d707f768e0" />
 
