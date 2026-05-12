@@ -10,7 +10,7 @@
 
 [strawpage](https://prettylittlelaces.straw.page) ˖ . ݁𝜗𝜚. ݁₊ [atabook](https://prettylittlelaces.atabook.org/) ˖ . ݁𝜗𝜚. ݁₊ [rentry](https://rentry.co/prettylittlelaces)
 
-<img width="666" height="375" alt="0373645da9077afa3a99184f5d8b03db-removebg-preview" src="https://github.com/user-attachments/assets/c7c588cc-6cc4-4516-b9e2-9cb8c15d8ba0" />
+<img width="734" height="295" alt="21d1c2f83eb5d6aa82626abbbc83bba9-removebg-preview" src="https://github.com/user-attachments/assets/c1c1f983-b642-4c2e-aa5d-05d707f768e0" />
 
 <div align="center">
 
@@ -22,10 +22,7 @@
 
 <div align="center">
 
-<img width="480" height="321" alt="4866ea334037d0c352a793c2e2869142-removebg-preview" src="https://github.com/user-attachments/assets/a4bc3b02-cf10-481d-bc3b-ab7c9464e848" />
-
-⠀⠀⠀⠀⠀ 　　　　 ⠀
-
+<img width="480" height="321" alt="Untitled19_20260511222746" src="https://github.com/user-attachments/assets/6ff28ec5-8f21-4836-83da-453e67e2598f" />
 
 <div align="center">
 
